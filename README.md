@@ -1,8 +1,8 @@
 # <a href="https://bitlecy.site/palacebet">Palacebet.com</a>
 # <a href="https://bitlecy.site/palacebet">TIKLA VE GİRİŞ YAP</a>
 
-<a href="https://bitlecy.site/palacebet" title="ResimLink - Resim Yükle"><img src="https://r.resimlink.com/qpw3fQx4da.png" title="ResimLink - Resim Yükle" alt="ResimLink - Resim Yükle"></a>
-<a href="https://bitlecy.site/palacebet" title="ResimLink - Resim Yükle"><img src="https://r.resimlink.com/qpw3fQx4da.png" title="ResimLink - Resim Yükle" alt="ResimLink - Resim Yükle"></a>
+<a href="https://bitlecy.site/palacebet" title="ResimLink - Resim Yükle"><img src="https://r.resimlink.com/EtuI6zX3sRUj.png" title="ResimLink - Resim Yükle" alt="ResimLink - Resim Yükle"></a>
+<a href="https://bitlecy.site/palacebet" title="ResimLink - Resim Yükle"><img src="https://r.resimlink.com/EtuI6zX3sRUj.png" title="ResimLink - Resim Yükle" alt="ResimLink - Resim Yükle"></a>
 
 # Palacebet: Palacebet Güvenlik ve Lisans  ✔ Tamamen Güvenli Bahis Platformu ✨
 
